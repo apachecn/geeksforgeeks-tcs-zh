@@ -4,6 +4,8 @@
 > 
 > 协议：[CC BY-NC-SA 4.0](http://creativecommons.org/licenses/by-nc-sa/4.0/)
 > 
+> 阶段：机翻（1）
+> 
 > 团结、勇气和绝不动摇的忠诚是人类最大的优点。——《动物园规则怪谈》
 
 * [在线阅读](https://g4g-tcs.apachecn.org)
